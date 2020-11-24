@@ -1,4 +1,4 @@
-# Regolamento gruppo (@Radio Gossip News Italia)
+# Regolamento gruppo (@radiogossipnewsitalia)
  
 Al fine di supportare discussioni costruttive, mantenere un livello minimo di decenza e di educazione, e promuovere la condivisione libera, è vietato:
 
